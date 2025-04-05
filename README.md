@@ -7,5 +7,4 @@ Intrigued by the environment that surrounds us, outgoing and determined to find 
 ## official education :v:
 * Data science biologist with emphasis on climate change
 * Descriptive statistics
-## Look at me :metal:
-(robinson0614@gmail.com)
+
